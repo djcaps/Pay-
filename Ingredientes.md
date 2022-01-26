@@ -1,0 +1,1 @@
+1 paquete de Galletas Marias, 1 barra de 90gr de Mantequilla, 3 huevos, 1tz de Piña, 180gr de Queso Philadelphia, 1 cucharada de vainilla y una lata de lechera.
